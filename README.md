@@ -1,0 +1,1 @@
+# linkadjausal.github.io
